@@ -1,4 +1,4 @@
-- 👋 Hola, soy @linxpon
+- 👋 Hola, soy @linxpon en youtube soy yoshi y en reddit soy unramdom123
 - 👀 Me interesa aprender a programar
 - 🌱 Actualmente estoy aprendiendo programacion
 - 💞️ Estoy buscando colaborar en alguna empresa grande
